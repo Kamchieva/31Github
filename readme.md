@@ -12,5 +12,8 @@ Chrismast  mood already
 
 Recprding all things
 
-Soo tired and feling not well
+Soo tired and feeling not well
 Hope can get over and go ack to my daily routine 
+
+Got a lot of thing done had my meeting 
+
